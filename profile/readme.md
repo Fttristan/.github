@@ -6,7 +6,7 @@ Founder & Owner at **[@Chillboio-Studios](https://github.com/Chillboio-Studios)*
 
 ### 👤 About Me
 - 🏷️ **Name:** Tristan
-- ⚡ **Details:** Male • Old Enough
+- ⚡ **Details:** Male • Minor
 - 🌐 **Website:** [chillboiostudios.com](https://www.chillboiostudios.com)
 - 👑 **Projects:** [@Chillboio-Studios](https://github.com/Chillboio-Studios)
 - ❤️ **Status:** Taken by [@GlamFreddy_VRC]() *(12/15/2024)*
